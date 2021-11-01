@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sakshamchaudhary1
 - 👀 I’m interested in anime
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me here is my discord UNKNOWN 69#8095
 
 <!---
